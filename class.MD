@@ -1,1 +1,1 @@
-Juan Felipe, Bucaramanga, Backend Developer :).
+Juan Felipe, Bucaramanga Colombia, Backend Developer :).
